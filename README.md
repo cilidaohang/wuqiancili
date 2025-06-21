@@ -1,6 +1,7 @@
 <h2>吴签磁力官网入口 - 最懂你的磁力链接搜索引擎网站</h2>
 <p>吴签磁力是一个专注于磁力链接和网盘资源搜索的多功能平台，旨在为用户提供便捷、高效的资源获取途径。该网站通过深度挖掘和整理海量的磁力链接，帮助用户快速找到所需的电影、音乐、软件、游戏等资源。吴签磁力以其干净、好用的界面设计和强大的搜索功能赢得了用户的广泛好评。此外，该平台还支持多种磁力下载器前缀，提供精准的搜索结果和高效的下载体验。无论是普通用户还是专业用户，吴签磁力都能满足其多样化的需求，成为资源搜索领域的佼佼者。</p>
 <p><strong>一键访问：</strong><a href="https://wuqiancili.litxdh.com"><strong>吴签磁力最新地址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>功能特点</strong></p>
 <ol>
